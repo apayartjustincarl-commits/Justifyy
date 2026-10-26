@@ -1,3 +1,21 @@
-# Justifyy
-Revolve Nightfall Cannon Graveyard Candy Ghost Spiderweb Crimson Halloween Waxen Spirit Ravager Kagen BAN ARM FANTASYDAGGER HPASS WENPASS HALLOWPASS ALLPASS ONLYALADIA
-...
+NEW CS CODE
+· ASTRONAUT
+· Submarine
+· SakuraRain
+· PorcelainGhost
+· PaperDragon
+· FossilFang
+· Clockwork
+· Racing
+· Dessert
+· Surf
+· Brick
+· DesertMirage
+
+· DISF
+· ARMPOR
+· GCAZZ
+· CASHG
+· BLOODPASS
+· MOONPASS
+· THANKYOUKIN
